@@ -2,6 +2,6 @@
 
 - 🔭 Je travaille actuellement sur un DoxTool.
 
-- 📫 On peut me joindre sur Disccord : Tovaritch'CIA#3658
+- 📫 On peut me joindre nulle part
 
-- ⚡ Fun fact: je suis vraiment Russe.
+- ⚡ Fun fact: Je suis raciste
